@@ -1,1 +1,1 @@
-i am glad to have this buddies
+network suks sometimes
